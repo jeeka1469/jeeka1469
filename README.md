@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Srujannnnnnnn 
-- 👀 I’m interested in nothing
+- 👀 I’m interested in AI/ML, Cloud, Web-Dev and story mode gamesssss
 - 🌱 I’m currently learning something...
 - 💞️ I’m looking to collaborate on everything...
 - 📫 How to reach me jeeka1469@gmail.com
